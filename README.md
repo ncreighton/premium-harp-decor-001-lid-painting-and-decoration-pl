@@ -1,0 +1,2 @@
+# premium-harp-decor-001-lid-painting-and-decoration-pl
+Harpsichord lid painting is an intricate art form that demands precision planning—but most builders juggle design ideas, decoration timelines, and material tracking across scattered notes and sketches. The Lid Painting and Decoration Planner Template brings all your creative vision into one organized Notion workspace, so you never lose a brushstrok
